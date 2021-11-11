@@ -1,1 +1,2 @@
-www.sharkchain.org  coming soon
+coming soon
+Stay Tuned on our Telegram t.me/sharkchainorg
